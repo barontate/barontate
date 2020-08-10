@@ -1,6 +1,6 @@
 ### Henlo.
 Melbourne university computer science student.
-Cyber security officer for Australian government agency.
+Cyber security 'enthusiast'
 
 - 🤔 I’m looking for help with: idk, everything
 - 💬 Ask me about: what i'm doing with my time
